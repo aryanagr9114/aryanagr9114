@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science and Gaming
 - 🌱 I’m currently learning HTML, CSS & Java
 - 💞️ I’m looking to collaborate on internships or entry-level positions
-- 📫 How to reach me: aryanagr9114@gmail.com
+- 📫 How to reach me: garwalaryan9114@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Gaming has honed my teamwork and problem-solving skills
 
